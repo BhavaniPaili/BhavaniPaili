@@ -24,8 +24,11 @@ About
 📫 How to reach me:
 
 Email: bhavani.paili@example.com
+
 LinkedIn: linkedin.com/in/bhavanipaili
+
 Twitter: @BhavaniPaili
+
 😄 Pronouns: She/Her
 
 ⚡ Fun fact: I once participated in a hackathon where our team built a fully functional app in just 48 hours. It was a thrilling challenge that taught me the power of teamwork
