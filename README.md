@@ -27,7 +27,6 @@ Email: bhavani.paili@example.com
 
 LinkedIn: linkedin.com/in/bhavanipaili
 
-Twitter: @BhavaniPaili
 
 😄 Pronouns: She/Her
 
